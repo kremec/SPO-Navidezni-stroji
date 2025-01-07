@@ -1,1 +1,0 @@
-# SPO-Navidezni-stroji
